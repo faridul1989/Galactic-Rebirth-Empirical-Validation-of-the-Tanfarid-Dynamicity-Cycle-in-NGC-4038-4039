@@ -1,0 +1,1 @@
+# Galactic-Rebirth-Empirical-Validation-of-the-Tanfarid-Dynamicity-Cycle-in-NGC-4038-4039
